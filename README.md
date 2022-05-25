@@ -11,21 +11,15 @@ You can click the Preview link to take a look at your changes.
 (Data Entry & Graphic Designing)
 Hi. I am Mir Awais. I'm a well skilled and hard-working Data Entry operator and Graphic Designer who designs posters, flyers and logos for promoting your business and companies and makes every given project successful. Also I've one year of excellent working experience which helps me to perform according to client's needs.
 Here’s a list of some of my skills that will be beneficial for your work:
-☑ Data Entry
+☑ Web Development
+☑ Wordpress
+☑ Website Design
+☑ Website Customization
+☑ E-Commerce Website
 ☑ MS Excel Work
 ☑ MS Word Work
 ☑ Web Research
 ☑ Email Scraping
-☑ Poster Designing
-☑ Flyer Designing
-☑ Logo Designing
-☑ Photo Editing
-☑ Video Editing
-☑ Data Collection
-☑ Data Scraping
-☑ Copy Paste Work
-☑ PDF to Excel or Word
-☑ JPEG to Excel or Word
 ☑And much more services
 ► Why You Should Hire Me.
 ✔ Quick Response
